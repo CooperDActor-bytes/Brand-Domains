@@ -1,1 +1,1 @@
-# this is the start of something Great stay tuned.
+# This is the start of something great. Stay Tuned
